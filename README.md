@@ -1,0 +1,2 @@
+# DizidekiEnYakinSayi
+DizidekiEnYakinSayi
